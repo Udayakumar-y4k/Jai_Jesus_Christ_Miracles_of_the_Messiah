@@ -47,3 +47,25 @@ Cleansing ten men with leprosy, with only one returning to give thanks (Luke 17:
 Healing a woman crippled and bent over for eighteen years (Luke 13:10-17).
 Healing a man with dropsy (edema) on the Sabbath (Luke 14:1-6).
 Restoring the severed ear of the high priest’s servant, Malchus (Luke 22:50-51).
+
+### Album: ஜெய் யேசு கிறிஸ்து – மேசியாவின் அற்புதங்கள்
+### Jai Jesus Christ – Miracles of the Messiah
+#### Songs
+Song 1
+நீரும் அப்பமும் – வழங்குபவர்
+Water and Bread – The Provider
+Song 2
+புயல்களும் பார்வையும் – அமைதிப்படுத்துபவர் மற்றும் திறப்பவர்
+Storms and Sight – The Calmer and Opener
+Song 3
+இருளிலிருந்து விடுதலை – பிசாசு ஓட்டுபவர்
+Deliverance from Darkness – The Exorcist
+Song 4
+சுத்திகரிப்பும் மீட்பும் – சுத்திகரிப்பவர்
+Cleansing and Restoration – The Cleanser
+Song 5
+மரித்தோரை எழுப்புதல் – ஜீவனளிப்பவர்
+Raising the Dead – The Life-Giver
+Song 6
+தொடுதலும் கட்டளையும் – இரக்கமுள்ள இறைவன்
+Touch and Command – The Compassionate Lord
